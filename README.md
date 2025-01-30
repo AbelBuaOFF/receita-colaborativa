@@ -12,3 +12,4 @@ Preparación
 1. Pelar e cortar as patacas en rodaxas finas.
 2. Picar a cebola.
 3. Fritir as patacas e a cebola en aceite ata que estean tenras.
+7. servir quente e disfrutar
